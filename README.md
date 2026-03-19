@@ -1,5 +1,6 @@
 
-  
+<img width="736" height="981" alt="Untitled163_20260319001939" src="https://github.com/user-attachments/assets/9afda586-5c8d-4db4-b5d0-3947e9d623d5" />
+
   
   
   ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=Knights.&style=for-the-badge)
