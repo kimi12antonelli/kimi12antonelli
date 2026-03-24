@@ -15,3 +15,5 @@ DNI Irl's ( Meaning you have a delusional attachment to a character )
 I can come off as Rude. I do not mean to.
 
 other drivers im a fan of > george russell, liam lawson, lewis hamilton
+
+i have OSDD-1 , Yes im a system. I use I/We sometimes.
