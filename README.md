@@ -18,3 +18,4 @@ yes i ignore whispers about my tier 4 unless its a friend or a friend of a frien
 
 theistic satanist
 
+dni td/cd/tt/ct/cvt/cvd , i dont like you guys sorry not sorry
