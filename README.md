@@ -18,3 +18,5 @@ yes i ignore whispers about my tier 4 unless its a friend or a friend of a frien
 theistic satanist , no idgaf if you have a hatred for my religion. dni if you HATE satanists or have satanists on your dni. at the end of the day, its MY religion. Not yours.
 
 iwecaution td/tt/cd/ct , respect this
+
+i need tonetags at times, though not required. i am autistic and struggle to read tone through text nowadays.
