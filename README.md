@@ -5,16 +5,3 @@
   ㅤㅤㅤㅤㅤ
                    ㅤ^_^        
 
-Previously had my github as geoscarr, Decided to rebrand to a Kimi Antonelli Github.
-
-DNI Irl's ( Meaning you have a delusional attachment to a character )
-
-I can come off as Rude. I do not mean to.
-
-other drivers im a fan of > oliver bearman, lewis hamilton
-
-theistic satanist , no idgaf if you have a hatred for my religion. dni if you HATE satanists or have satanists on your dni. at the end of the day, its MY religion. Not yours.
-
-iwecaution td/tt/cd/ct , respect this [ yes i have this despite having a cover discomfort. i like seeing my skins thanks. ]
-
-i need tonetags at times, though not required. i am autistic and struggle to read tone through text nowadays.
