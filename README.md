@@ -18,4 +18,6 @@ i have a hyperfixation on my oc that you usually see me as. which is my black n 
 
 dni proshippers, darkshippers, anything problematic
 
+i am german / australian ! ^_^
+
 
