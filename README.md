@@ -20,4 +20,5 @@ dni proshippers, darkshippers, anything problematic
 
 i am german / australian ! ^_^
 
+my skins all have ✦ and my github.
 
