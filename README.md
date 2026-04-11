@@ -6,7 +6,7 @@
   ㅤㅤㅤㅤㅤ
                    ㅤ^_^        
 
-pfp and banner may be different, i just like minecraft because its a hyperfixation of mine !
+pfp and banner may be different, i really like DW
 
 f1 drivers i support : kimi antonelli, liam lawson, oscar piastri, george russel, isack hadjar and arvid lindblad
 
