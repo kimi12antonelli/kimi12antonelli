@@ -8,7 +8,7 @@
 
 pfp and banner may be different, i really like DW
 
-f1 drivers i support : kimi antonelli, liam lawson, oscar piastri, george russel, isack hadjar and arvid lindblad
+f1 drivers i support : kimi antonelli, liam lawson, oscar piastri, george russel, isack hadjar and arvid lindblad + lewis hamilton
 
 most of the time i can come off as rude. i have occasional mood swings that are bad at times.
 
