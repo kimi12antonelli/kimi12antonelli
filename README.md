@@ -1,4 +1,4 @@
-<img width="1036" height="981" alt="Untitled163_20260319001939" src="https://github.com/user-attachments/assets/e7a47030-735a-4380-a431-cd13925ec5f2" />
+<img width="1036" height="681" alt="Untitled163_20260319001939" src="https://github.com/user-attachments/assets/e7a47030-735a-4380-a431-cd13925ec5f2" />
 
   
   ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=Wins.&style=for-the-badge)
@@ -23,6 +23,6 @@ i am german / australian ! ^_^
 my skins all have ✦ and my github.
 
 
-<img width="1036" height="981" alt="Screenshot 2026-04-15 144448" src="https://github.com/user-attachments/assets/5f0c2f71-60e9-4278-bd4b-f1e15072fd26" />
+<img width="1036" height="681" alt="Screenshot 2026-04-15 144448" src="https://github.com/user-attachments/assets/5f0c2f71-60e9-4278-bd4b-f1e15072fd26" />
 
 
