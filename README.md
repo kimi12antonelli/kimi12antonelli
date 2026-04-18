@@ -6,21 +6,21 @@
   ㅤㅤㅤㅤㅤ
                    ㅤ^_^        
 
-multifandom ; F1, DW, SFAWTDE / DAWTDE , DC ( sometimes ) [ DW, F1 AND SFAWTDE are my biggest fixations ]
+✦ : Multifandom ; F1, DW, SFAWTDE / DAWTDE , DC. ( Sometimes. ) [ DW, F1 AND SFAWTDE are my biggest fixations. ]
 
-f1 drivers i support : kimi antonelli, liam lawson, oscar piastri, george russel, isack hadjar and arvid lindblad + lewis hamilton
+✦ : F1 drivers i support : Kimi Antonelli, Liam Lawson, Oscar Piastri, George Russell, Isack Hadjar And Arvid Lindblad + Lewis Hamilton.
 
-most of the time i can come off as rude. i have occasional mood swings that are bad at times.
+✦ : Most of the time i can come off as rude. I have occasional mood swings that are bad at times.
 
-i do not ship rp unless its a friend or someone i am directly close with. I am mostly in kingdoms, sometimes labs if im with my dear friend thats mentioned in my bio
+✦ : I do not ship rp unless its a friend or someone i am directly close with. I am mostly in kingdoms, sometimes labs if im with my dear friend thats mentioned in my bio
 
-i have a hyperfixation on my oc that you usually see me as. which is my black n red knight oc. or my black n purple knight oc. yes im in alot of kingdom roleplays, dont be scared to say hi! 
+✦ : I have a hyperfixation on my oc that you usually see me as. Which is my Black and Teal Knight OC.
 
-dni proshippers, darkshippers, anything problematic
+✦ : dni Proshippers, Darkshippers, Anything Problematic.
 
-i am german / australian ! ^_^
+✦ : I am German / Australian.
 
-my skins all have ✦ and my github. | i also wear a wrist brace, please be patient as i can have slow typing at times.
+✦ : My skins all have ✦ and my Github. | I also wear a wrist brace, Please be patient as I can have slow typing at times.
 
 
 <img width="1036" height="681" alt="Screenshot 2026-04-15 144448" src="https://github.com/user-attachments/assets/5f0c2f71-60e9-4278-bd4b-f1e15072fd26" />
