@@ -22,6 +22,7 @@
 
 ✦ : My skins all have ✦ and my Github. | I also wear a wrist brace, Please be patient as I can have slow typing at times.
 
+✦ : I am mostly if not all the time offtab, So i will not see your whisper on main map.
 
 <img width="1036" height="681" alt="Screenshot 2026-04-15 144448" src="https://github.com/user-attachments/assets/5f0c2f71-60e9-4278-bd4b-f1e15072fd26" />
 
