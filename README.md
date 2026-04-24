@@ -4,7 +4,9 @@
   ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=Wins.&style=for-the-badge)
 
   ㅤㅤㅤㅤㅤ
-                   ㅤ^_^        
+                   ㅤ^_^   
+
+                   ✦ : DO NOT CONTINOUSLY FOLLOW IF I HAVE MOVED AWAY FROM YOU. IT MAKES ME UNCOMFY.
 
 ✦ : Multifandom ; F1, DW, SFAWTDE / DAWTDE , DC. ( Sometimes. ) [ DW, F1 AND SFAWTDE are my biggest fixations. ]
 
